@@ -43,6 +43,14 @@ decipher the unknown, and achieve greatness.
 - Have a keen eye for small details
 - Very passionate and driven
 
+## Qualifications
+- Completion of Data Analytics Bootcamp (CareerFoundry)
+- Food Hygiene and Safety Level 2
+- Proficiency in Fire Fighting and Fire Prevention
+- Proficiency in Personal Safety and Social Responsibility
+- Proficiency in Security Awareness
+- Basic First Aid Trained
+  
 ## Contact info
  - **Email** - Andreas.tocci@outlook.com
  - **Country of Residence** - Athens, Greece
