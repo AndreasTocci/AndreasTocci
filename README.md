@@ -53,7 +53,7 @@ decipher the unknown, and achieve greatness.
   
 ## Contact info
  - **Email** - Andreas.tocci@outlook.com
- - **Country of Residence** - Athens, Greece
+ - **Location** - Athens, Greece
 
 ## Job Inquiry Information
 - Willing to relocate
